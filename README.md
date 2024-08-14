@@ -1,10 +1,12 @@
 - 👋 Hi, I’m @FalakStar
-- 👀 I’m interested in Software Development and Coading
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 👀 I’m Software Developer And All Types Of Software License Key Provider
+- Get Any Software
+- License Key
+- Serial Key
+- Redistration Key
+- Patch
+- Cr@cak
+- 🌱
 
 <!---
 FalakStar/FalakStar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
